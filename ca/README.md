@@ -1,1 +1,2 @@
 CA KI UNITS KO RATTA MARNE KI KOSHISH MT KRNA...SIRF US QUESTION K WORD KA JO MEANING H USE SMJH LO FIR JO CONTENT LIKHA H USE SMJHO ..SMJH SMJH K KRNA H 
+har unit mai 4 ya 5 questions h toh total 20-22 question per subject h..jo sbse km h
